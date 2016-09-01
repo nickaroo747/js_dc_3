@@ -1,0 +1,3 @@
+- Jump up and down 10 times
+- push ups in a corner
+- each ice cream
